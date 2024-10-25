@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **sathwikms8@gmail.com**
 
-- ⚡ Fun fact **I play guitar whenever im not learning**
+- ⚡ Fun fact **I manage my clothing brand whenever im not learning**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
